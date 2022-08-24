@@ -86,3 +86,75 @@ CHAPTER 3
 22Now the Lord God said, "Behold man has become like one of us, having the ability of knowing good and evil, and now, lest he stretch forth his hand and take also from the Tree of Life and eat and live forever."
 23And the Lord God sent him out of the Garden of Eden, to till the soil, whence he had been taken.
 24And He drove the man out, and He stationed from the east of the Garden of Eden the cherubim and the blade of the revolving sword, to guard the way to the Tree of Life.
+
+The book of JOB
+
+Prologue
+1 In the land of Uz there lived a man whose name was Job. This man was blameless and upright; he feared God and shunned evil.
+2 He had seven sons and three daughters,
+3 and he owned seven thousand sheep, three thousand camels, five hundred yoke of oxen and five hundred donkeys, and had a large number of servants. He was the greatest man among all the people of the East.
+4 His sons used to hold feasts in their homes on their birthdays, and they would invite their three sisters to eat and drink with them.
+5 When a period of feasting had run its course, Job would make arrangements for them to be purified. Early in the morning he would sacrifice a burnt offering for each of them, thinking, “Perhaps my children have sinned and cursed God in their hearts.” This was Job’s regular custom.
+6 One day the angels came to present themselves before the LORD, and Satan also came with them.
+7 The LORD said to Satan, “Where have you come from?” Satan answered the LORD, “From roaming throughout the earth, going back and forth on it.”
+8 Then the LORD said to Satan, “Have you considered my servant Job? There is no one on earth like him; he is blameless and upright, a man who fears God and shuns evil.”
+9 “Does Job fear God for nothing?” Satan replied.
+10 “Have you not put a hedge around him and his household and everything he has? You have blessed the work of his hands, so that his flocks and herds are spread throughout the land.
+11 But now stretch out your hand and strike everything he has, and he will surely curse you to your face.”
+12 The LORD said to Satan, “Very well, then, everything he has is in your power, but on the man himself do not lay a finger.” Then Satan went out from the presence of the LORD.
+13 One day when Job’s sons and daughters were feasting and drinking wine at the oldest brother’s house,
+14 a messenger came to Job and said, “The oxen were plowing and the donkeys were grazing nearby,
+15 and the Sabeans attacked and made off with them. They put the servants to the sword, and I am the only one who has escaped to tell you!”
+16 While he was still speaking, another messenger came and said, “The fire of God fell from the heavens and burned up the sheep and the servants, and I am the only one who has escaped to tell you!”
+17 While he was still speaking, another messenger came and said, “The Chaldeans formed three raiding parties and swept down on your camels and made off with them. They put the servants to the sword, and I am the only one who has escaped to tell you!”
+18 While he was still speaking, yet another messenger came and said, “Your sons and daughters were feasting and drinking wine at the oldest brother’s house,
+19 when suddenly a mighty wind swept in from the desert and struck the four corners of the house. It collapsed on them and they are dead, and I am the only one who has escaped to tell you!”
+20 At this, Job got up and tore his robe and shaved his head. Then he fell to the ground in worship
+21 and said: “Naked I came from my mother’s womb, and naked I will depart.The LORD gave and the LORD has taken away; may the name of the LORD be praised.”
+22 In all this, Job did not sin by charging God with wrongdoing.
+
+CHAPTER 2
+
+1 On another day the angels came to present themselves before the LORD, and Satan also came with them to present himself before him.
+2 And the LORD said to Satan, “Where have you come from?” Satan answered the LORD, “From roaming throughout the earth, going back and forth on it.”
+3 Then the LORD said to Satan, “Have you considered my servant Job? There is no one on earth like him; he is blameless and upright, a man who fears God and shuns evil. And he still maintains his integrity, though you incited me against him to ruin him without any reason.”
+4 “Skin for skin!” Satan replied. “A man will give all he has for his own life.
+5 But now stretch out your hand and strike his flesh and bones, and he will surely curse you to your face.”
+6 The LORD said to Satan, “Very well, then, he is in your hands; but you must spare his life.”
+7 So Satan went out from the presence of the LORD and afflicted Job with painful sores from the soles of his feet to the crown of his head.
+8 Then Job took a piece of broken pottery and scraped himself with it as he sat among the ashes.
+9 His wife said to him, “Are you still maintaining your integrity? Curse God and die!”
+10 He replied, “You are talking like a foolish woman. Shall we accept good from God, and not trouble?” In all this, Job did not sin in what he said.
+11 When Job’s three friends, Eliphaz the Temanite, Bildad the Shuhite and Zophar the Naamathite, heard about all the troubles that had come upon him, they set out from their homes and met together by agreement to go and sympathize with him and comfort him.
+12 When they saw him from a distance, they could hardly recognize him; they began to weep aloud, and they tore their robes and sprinkled dust on their heads.
+13 Then they sat on the ground with him for seven days and seven nights. No one said a word to him, because they saw how great his suffering was.
+
+CHAPTER 3
+
+Job Speaks
+1 After this, Job opened his mouth and cursed the day of his birth.
+2 He said:
+3 “May the day of my birth perish, and the night that said, ‘A boy is conceived!’
+4 That day—may it turn to darkness; may God above not care about it; may no light shine on it.
+5 May gloom and utter darkness claim it once more; may a cloud settle over it; may blackness overwhelm it.
+6 That night—may thick darkness seize it; may it not be included among the days of the year nor be entered in any of the months.
+7 May that night be barren; may no shout of joy be heard in it.
+8 May those who curse days curse that day, those who are ready to rouse Leviathan.
+9 May its morning stars become dark; may it wait for daylight in vain and not see the first rays of dawn,
+10 for it did not shut the doors of the womb on me to hide trouble from my eyes.
+11 “Why did I not perish at birth, and die as I came from the womb?
+12 Why were there knees to receive me and breasts that I might be nursed?
+13 For now I would be lying down in peace; I would be asleep and at rest
+14 with kings and rulers of the earth, who built for themselves places now lying in ruins,
+15 with princes who had gold, who filled their houses with silver.
+16 Or why was I not hidden away in the ground like a stillborn child, like an infant who never saw the light of day?
+17 There the wicked cease from turmoil, and there the weary are at rest.
+18 Captives also enjoy their ease; they no longer hear the slave driver’s shout.
+19 The small and the great are there, and the slaves are freed from their owners.
+20 “Why is light given to those in misery, and life to the bitter of soul,
+21 to those who long for death that does not come, who search for it more than for hidden treasure,
+22 who are filled with gladness and rejoice when they reach the grave?
+23 Why is life given to a man whose way is hidden, whom God has hedged in?
+24 For sighing has become my daily food; my groans pour out like water.
+25 What I feared has come upon me; what I dreaded has happened to me.
+26 I have no peace, no quietness; I have no rest, but only turmoil.”
